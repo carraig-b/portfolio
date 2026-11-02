@@ -26,4 +26,19 @@ My hobbies and Interests :
 Why i enjoy my hobbies : 
 i enjoy these hobbies as they stimulate my brain and make me think and improve my knowledge and test my skills. I also enjoy these hobbies as they are relaxing for me and let me socialise with people and get outside and exercise without feeling like a chore.
 
-My skills,
+My skills :
+
+Technical skills :
+1. problem solving
+2. critical thinking
+3. group leading skills
+4. flexible work ethic
+5. resilience
+
+Personal skills:
+1. communication skills
+2. ability to explain things to unexperienced people
+3. sociable
+4. 
+
+
