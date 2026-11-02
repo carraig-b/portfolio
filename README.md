@@ -39,6 +39,13 @@ Personal skills:
 1. communication skills
 2. ability to explain things to unexperienced people
 3. sociable
-4. 
+4. time management
+5. ability to hold myself accountable
+
+Future aspirations : 
+my goal is to finish my current course and use this to progress into the IT sector and hopefully get a job as a software engineer. My next steps to achieve this goal include things like getting my T levels and then going to university to study software more in depth. 
+My back up career option is to pursue my love for mathematics and do a degree in mathematics and hopefully get a PhD after that.
+
+My personal aspirations are to become as helpful to my community as i can aswell as improve my health and get more time outside. I am planning to start going to gym and try organise regular bike rides with people from my community so I can get to know more people and have a way to get outside.
 
 
